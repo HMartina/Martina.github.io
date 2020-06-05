@@ -68,9 +68,10 @@ We can never thank you enough anyway.
 
 
 
+THANK YOU TEACHER FOR ALL THE THINGS YOU HAVE DONE FOR ME...
+
 
 ![teacher](https://bitsofpositivity.com/wp-content/uploads/2017/04/Best-Teacher-Appreciation-Quotes-to-Say-Thank-You.jpg)
-THANK YOU TEACHER FOR ALL THE THINGS YOU HAVE DONE FOR ME...
 
 
 
