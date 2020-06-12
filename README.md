@@ -10,7 +10,20 @@ Email:martinahaorokcham2@gmail.com.<br>
 well that's something about me.<hr>
 
 Well guys my best compliments comes to my respected teachers who guided me in every way..
-here it goes.....<br>
+here it goes.....<br> 
+Hands are mine, but the method is yours.<br>
+         Brain is mine, but the guidance is yours.<br>
+Results are mine, but the faith is yours.<br>
+         Studies become interesting when you teach.<br>
+Your guidance brings top grades in our reach.<br>
+         we know we can APPROACH you even when you are busy,<br> 
+that you'll make a tough task.....quite easy!!!<br> 
+We can never thank you enough anyway.<br>
+<BASEFONT color="red"size="10">
+THANK YOU TEACHER FOR ALL THE THINGS YOU HAVE DONE FOR ME... <br><hr>
+[thank you](https://www.teachthought.com/pedagogy/great-best-quotes-about-teaching/.jpg)
+<h6>THANKING YOU..<br>HOPE YOU ENJOYED..!!!<h6>
+    
 
 
 
