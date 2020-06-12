@@ -19,9 +19,9 @@ Your guidance brings top grades in our reach.<br>
          we know we can APPROACH you even when you are busy,<br> 
 that you'll make a tough task.....quite easy!!!<br> 
 We can never thank you enough anyway.<br>
-![teacher](https://bitsofpositivity.com/wp-content/uploads/2017/04/Best-Teacher-Appreciation-Quotes-to-Say-Thank-You.jpg)
+![teacher](https://bitsofpositivity.com/wp-content/uploads/2017/04/Best-Teacher-Appreciation-Quotes-to-Say-Thank-You.jpg)<br>
 THANK YOU TEACHER FOR ALL THE THINGS YOU HAVE DONE FOR ME... <br><hr>
-![thanking teacher](https://resources.stuff.co.nz/content/dam/images/1/3/e/g/0/m/image.related.StuffLandscapeSixteenByNine.620x349.17ek6x.png/1464226279690.jpg)
+![thanking teacher](https://resources.stuff.co.nz/content/dam/images/1/3/e/g/0/m/image.related.StuffLandscapeSixteenByNine.620x349.17ek6x.png/1464226279690.jpg)<br><hr>
  <h6>THANKING YOU..<br>HOPE YOU ENJOYED..!!!<h6>
 
 
