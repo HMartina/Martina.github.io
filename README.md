@@ -1,16 +1,16 @@
 # Martina.github.io
 My first web page
-Hello guys,welcome to my page.
-Haorokcham Martina here
-Standard:10
-Roll no.27
-Address:Bishnupur,Manipur
-School:Mother's Pride Academy
-Email:martinahaorokcham2@gmail.com.
-well that's something about me.
+<h5>Hello guys,welcome to my page.<h5><hr>
+Haorokcham Martina here<br>
+Standard:10<br>
+Roll no.27<br>
+Address:Bishnupur,Manipur<br>
+School:Mother's Pride Academy<br>
+Email:martinahaorokcham2@gmail.com.<br>
+well that's something about me.<hr>
 
-well guys my best compliments comes to my respected teachers who guided me in every way..
-here it goes.....
+Well guys my best compliments comes to my respected teachers who guided me in every way..
+here it goes.....<br>
 
 
 
